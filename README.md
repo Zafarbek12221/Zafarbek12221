@@ -18,5 +18,8 @@ Haqni izlab dilim tog’ ota.
 
 Qaytkim kelar qishloqqa gohi,
 Buncha og’ir yashamoq ota,
+
 O’pib yashar oyog‘ingizni,
 Tuproq mendan baxtliroq ota. 
+![photo_16_2024-07-19_14-39-37](https://github.com/user-attachments/assets/d75d8ffa-b7d0-4ec0-8a42-c01a10f27a22)
+
